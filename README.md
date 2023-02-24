@@ -1,4 +1,4 @@
 - 🔭 Atualmente estou estudando Sesc/Senac
 - 🌱 Atualmente estou aprendendo programação para internet
-- 📫 Como entrar em contato comigo:whattsApp 44 99823-5207
+- 📫 Como entrar em contato comigo:anakarllade7@gmail.com
 - 😄 Pronomes:Ela/Dela
